@@ -1,3 +1,3 @@
-- Wechat, Telegram, Facebook, Twitter, Reddit etc multiplatform promotion
-- multi forums management各论坛社区管理
-- more than 30 Australian local events & meetups多场澳洲本地线下活动 https://www.meetup.com/startups-australia/photos/
+- Wechat, Telegram, Facebook, Twitter, Reddit etc promotion
+- multiple forums & online community management
+- more than 30 Australian local events & meetups https://www.meetup.com/startups-australia/photos/
