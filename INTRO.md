@@ -4,6 +4,9 @@
 - Believers and practitioners of Blockchain values<br>
 - Borderless Learning and Mutual Help Community<br>
 - Making each individual business and community successful through the Blockchain
+- Email: info@nextgenius.com.au
+- Telegram: https://t.me/next_genius
+- Twitter: https://twitter.com/NextGeniusAU
 
 # For Blockchain Ethusiasts
 
