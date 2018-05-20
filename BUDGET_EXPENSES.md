@@ -1,1 +1,5 @@
-Supply a clear budget line.
+- Online Editor & Promotion Managers $100,000
+- Forum & Online Communiyt Managers $80,000
+- Event Managers & Coordinators $80,000
+- Design & Printing $40,000
+- IT & System Maintanance $100,000
